@@ -1,0 +1,1 @@
+# bachelor_diplom_mechatronic_module
